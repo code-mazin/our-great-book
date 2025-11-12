@@ -1,6 +1,6 @@
 # Figuris domus
 
-## Minoe iacent
+## Minoe iacentss
 
 Lorem markdownum meus momentaque dividuae est. Gignis suspiria oras tendens,
 visum fagus speciosoque sequar!
