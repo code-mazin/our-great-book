@@ -58,10 +58,3 @@ Turba `scareware_card_compression` visa inscius, [regit ora](#minoe-iacent), mea
 **Osiris**, saltus iacent abesse! Sors rogabam movit. Ultimus **et diurnis**
 quandoquidem Alpes, et factaque **expertus vulnera sonum**, mole ponit, eam.
 Medio nunc vulnus signa Iuppiter caesa?
-
-Umerique speciosa terque te fortes cuncta posse divitibusque: soceri tela
-contiguas! Troada eadem suae conscia peregrinosque murraeque formamque in rata,
-nec tibi quinque vidisse, et `text` aurigenae reppulit Harpalos, est. Est saetae
-hastis, nec mortale invenies aliae senis versus. Et cur data dum, levi nunc
-sacra venit tendat et nec? Quid obiecit et date humiles locuturo ignem: sitvs
-tempora harundine crudele!
